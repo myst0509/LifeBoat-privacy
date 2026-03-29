@@ -1,0 +1,2 @@
+# LifeBoat-privacy
+Privacy Policy
